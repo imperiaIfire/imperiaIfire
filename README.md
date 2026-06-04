@@ -5,7 +5,7 @@
 <br /> 
 C+H OK and ENCOURAGED! (￣ε￣＠) <br />
 
-Usually offtab So.. Whisper ME!! <- Not Very Talkative <br />
+Usually offtab So.. Whisper ME!! <- Not V Social <br />
 Normally wearing Spiderbu & others ⤵︎
 <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/spiderbu" alt="image" width="80" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/shoebilly" alt="image" width="80" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/arachnid" alt="image" width="90" />  <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/null" alt="image" width="75" />  <br />
