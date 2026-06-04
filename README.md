@@ -15,7 +15,7 @@ Normally wearing Spiderbu & others ⤵︎
 ‎<img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgif" alt="image" width="220" /> 
 <img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/imperialfire" alt="image" width="190" /> 
 
-Wanna know more ? <br />
+Wanna know more ?  <br /> 
 Key / Pony name! (´-ω-`) <br /> 
 She / Him . Girlboy + Pan <br /> 
 IWC@AT ♡ Very Anxious <br /> 
@@ -27,17 +27,4 @@ Taxduo. watching since <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="180" /> ‎ ‎ ‎ ‎my  ‎ love,  ‎ your  ‎ rage,  ‎ our <br />‎
 Main Rentry + PT Rentry ‎ ‎ ‎ ‎   dying   claim  ‎ to  ‎ fame!
 
-<!--
-**imperiaIfire/imperiaIfire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i give up bro its 12am i need to shower and sleep and ill finish this shit tomorrow
