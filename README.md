@@ -11,14 +11,19 @@ Normally wearing Spiderbu & others ⤵︎
 
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/hugesword" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv" alt="image" width="200" />
 
-<img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgif" alt="image" width="220" /> 
+‎<img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgif" alt="image" width="220" /> 
 <img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/imperialfire" alt="image" width="190" /> 
 
 Wanna know more ? <br />
-Key / Pony name! (´-ω-`) She / Him . Girlboy + Pan IWC@AT ♡ Very Anxious ( ≧▽≦ ) ILMBF 3.29 ♡N!!
-<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv1" alt="image" width="180" /> 
-I love Imperial Fire & Taxduo. watching since 2024. I Love Spiderbu!
-<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="180" /> ‎ ‎ ‎ ‎my  ‎ love,  ‎ your  ‎ rage,  ‎ our ‎ ‎ ‎ ‎ ‎ ‎ 
+Key / Pony name! (´-ω-`) <br /> 
+She / Him . Girlboy + Pan <br /> 
+IWC@AT ♡ Very Anxious <br /> 
+( ≧▽≦ ) ILMBF 3.29 ♡N!! <br />
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv1" alt="image" width="180" /> <br />
+I love Imperial Fire & <br /> 
+Taxduo. watching since <br /> 
+2024. I Love Spiderbu! <br />
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="180" /> ‎ ‎ ‎ ‎my  ‎ love,  ‎ your  ‎ rage,  ‎ our <br />‎
 Main Rentry + PT Rentry ‎ ‎ ‎ ‎   dying   claim  ‎ to  ‎ fame!
 
 <!--
