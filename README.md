@@ -25,6 +25,6 @@ IWC@AT ♡ Very Anxious <br />
 I love Imperial Fire & <br /> 
 Taxduo. watching since <br /> 
 2024. I Love Spiderbu! <br />
-<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="180" />
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="160" />
 ‎‎Main Rentry + PT Rentry  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ my  ‎ love,  ‎ your  ‎ rage,  ‎ our <br />
 ☆ Not Made for Phones‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎  dying    ‎    claim  ‎ to  ‎ fame!
