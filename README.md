@@ -13,7 +13,7 @@ Normally wearing Wemb / Spiderbu & others here ⤵︎
 <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/hugesword" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv" alt="image" width="200" />
 
-‎ <img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgiff" alt="image" width="240" /> 
+‎ <img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgiff" alt="image" width="230" /> 
 <img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/imperialfire" alt="image" width="190" /> 
 Wanna know more ?  <br /> 
 
