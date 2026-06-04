@@ -1,4 +1,25 @@
-## Hi there 👋
+my  ‎ rival,  ‎ my  ‎ idol,  ‎ you  ‎ got  ‎ me  ‎suicidal !
+
+<img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/wemmbugif" alt="image" width="220" />
+<br /> 
+C+H OK and ENCOURAGED! (￣ε￣＠) <br />
+
+Usually offtab So.. W2I <- Not V Social <br />
+Normally wearing Spiderbu & others ⤵︎
+<br />
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/spiderbu" alt="image" width="80" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/shoebilly" alt="image" width="80" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/arachnid" alt="image" width="90" />  <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/null" alt="image" width="75" /> 
+
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/hugesword" alt="image" width="200" /> <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv" alt="image" width="200" />
+
+<img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/flamefragsgif" alt="image" width="220" /> 
+<img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/imperialfire" alt="image" width="190" /> 
+
+Wanna know more ? <br />
+Key / Pony name! (´-ω-`) She / Him . Girlboy + Pan IWC@AT ♡ Very Anxious ( ≧▽≦ ) ILMBF 3.29 ♡N!!
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv1" alt="image" width="180" /> 
+I love Imperial Fire & Taxduo. watching since 2024. I Love Spiderbu!
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="180" /> ‎ ‎ ‎ ‎my  ‎ love,  ‎ your  ‎ rage,  ‎ our ‎ ‎ ‎ ‎ ‎ ‎ 
+Main Rentry + PT Rentry ‎ ‎ ‎ ‎   dying   claim  ‎ to  ‎ fame!
 
 <!--
 **imperiaIfire/imperiaIfire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
