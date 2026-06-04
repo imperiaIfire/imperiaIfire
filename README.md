@@ -26,6 +26,6 @@ I love Imperial Fire & <br />
 Taxduo. watching since <br /> 
 2024. I Love Spiderbu! <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="160" />
-‎‎Main Rentry + PT Rentry 
-‎☆ Not Made for Phones‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ my  ‎ love,  ‎ your  ‎ rage,  ‎ our <br />
+‎‎Main Rentry + PT Rentry <br />
+‎☆ Not Made for Phones‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ my  ‎ love,  ‎ your  ‎ rage,  ‎ our <br />
  ‎ ‎ ‎    ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎  dying    ‎    claim  ‎ to  ‎ fame!
