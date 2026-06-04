@@ -21,7 +21,7 @@ Key / Pony name! (´-ω-`) <br />
 She / Him . Girlboy + Pan <br /> 
 IWC@AT ♡ Very Anxious <br /> 
 ( ≧▽≦ ) ILMBF 3.29 ♡N!! <br />
-<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv1" alt="image" width="180" /> <br />
+<img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/orangediv1" alt="image" width="160" /> <br />
 I love Imperial Fire & <br /> 
 Taxduo. watching since <br /> 
 2024. I Love Spiderbu! <br />
