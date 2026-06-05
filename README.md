@@ -1,4 +1,4 @@
-$${\color{darkorchid}my   ‎ rival,  ‎ my  ‎ idol,  ‎ you  ‎ got  ‎ me  ‎suicidal   ‎! }$$
+$${\color{darkorchid}my   ‎ rival,  ‎ my  ‎ idol,}$$ $${\color{orange}  ‎ you  ‎ got  ‎ me  ‎suicidal   ‎! }$$
 
 <img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/transparent.png" alt="image" width="200" height="700" />
    ‎
