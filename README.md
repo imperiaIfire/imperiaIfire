@@ -1,6 +1,7 @@
 $${\color{darkorchid}my   ‎ rival,  ‎ my  ‎ idol,  ‎ you  ‎ got  ‎ me  ‎suicidal   ‎! }$$
+
 <img align="right" src="https://file.garden/ZmCMx6iqjReY11OS/transparent.png" alt="image" width="200" height="700" />
-   ‎    ‎
+   ‎
 <img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/wemmbugiff" alt="image" width="230" />
 <br /> 
 C+H OK and ENCOURAGED! (￣ε￣＠) <br />
