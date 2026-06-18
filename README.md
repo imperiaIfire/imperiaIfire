@@ -27,5 +27,5 @@ I love Imperial Fire & <br />
 Taxduo. watching since <br /> 
 2024. I Love Spiderbu! <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="160" />
-‎‎<a href="https://rentry.co/swag">Main Rentry</a> + <a href="https://rentry.co/u_u">PT Rentry</a>  <br />
+‎‎https://txto.eu.org/Rosy  <br />
 ‎☆ Not Made for Phones‎ <br />
