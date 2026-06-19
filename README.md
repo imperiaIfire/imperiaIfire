@@ -27,5 +27,5 @@ I love Imperial Fire & <br />
 Taxduo. watching since <br /> 
 2024. I Love Spiderbu! <br />
 <img align="center" src="https://file.garden/ZmCMx6iqjReY11OS/purplediv1" alt="image" width="160" />
-‎‎https://txto.eu.org/imperiaIfire <br />
+‎‎txto.eu.org/imperiaIfire <br />
 ‎☆ Not Made for Phones‎ <br />
